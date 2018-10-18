@@ -10,4 +10,4 @@ https://www.coursera.org/learn/vvedenie-mashinnoe-obuchenie/home/welcome
 
 сертификат о прохождении курса:
 
-https://www.coursera.org/account/accomplishments/records/4VQXV3Y3FNRC
+https://www.coursera.org/account/accomplishments/certificate/FZYMYJQGGTLE
